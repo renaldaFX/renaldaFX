@@ -18,7 +18,7 @@ I'm a Back-end Developer and Embedded Systems first-year Computer Engineering st
 ## 📫 Let's Connect
 
 - 💼 [Instagram](https://instagram.com/renzearch)
-- 📬 [Email]: adraihan94@gmail.com
+- 📬 adraihan94@gmail.com
 
 ---
 
